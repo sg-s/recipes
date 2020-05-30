@@ -18,9 +18,8 @@ Banti Red Sauce
 - Seasoned breadcrumbs
 - Parsley
 - Parmesan cheese (from shaker)
-
-Sausage (mix of sweet/spicy sausage)
-Onions and garlic
+- Sausage (mix of sweet/spicy sausage)
+- Onions and garlic
 
 ## Directions:
 
@@ -38,14 +37,15 @@ Onions and garlic
 ### Sauce
 
 - Pour crushed tomatoes into large pot.
-Using crushed tomatoes can, fill ½ of the can with water and add it to the pot. Add ½ can of water for each can of tomatoes used.
-Cover on medium/high heat until brought to a boil.
-Once to a boil, add about ⅔ teaspoons (per can of tomatoes used) of Tuscan Italian seasoning to pot.
-Add parmesan cheese rinds to the pot. Make sure to stir occasionally so the rinds don’t stick and burn to the bottom of the pot.
-Let simmer/boil for approximately 45 minutes.
-During this time you will be adding the onions and garlic. You may also be adding the sausage and meatballs, depending on how long they take.
-Add partially cooked sausage and meatballs to pot.
-Once the onions, garlic and meats are in the pot, let the sauce simmer for an additional hour and a half (can be anywhere from one to two hours).
+- Using crushed tomatoes can, fill ½ of the can with water and add it to the pot. 
+- Add ½ can of water for each can of tomatoes used.
+- Cover on medium/high heat until brought to a boil.
+- Once to a boil, add about ⅔ teaspoons (per can of tomatoes used) of Tuscan Italian seasoning to pot.
+- Add parmesan cheese rinds to the pot. Make sure to stir occasionally so the rinds don’t stick and burn to the bottom of the pot.
+- Let simmer/boil for approximately 45 minutes.
+- During this time you will be adding the onions and garlic. You may also be adding the sausage and meatballs, depending on how long they take.
+- Add partially cooked sausage and meatballs to pot.
+- Once the onions, garlic and meats are in the pot, let the sauce simmer for an additional hour and a half (can be anywhere from one to two hours).
 
 ### Sausage and meatballs
 
