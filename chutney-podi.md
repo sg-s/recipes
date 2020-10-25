@@ -1,6 +1,6 @@
 # Chutney Podi
 
-##Ingredients 
+## Ingredients 
 
 | Thing | Amount |
 | --- | ---- |
